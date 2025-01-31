@@ -7,9 +7,10 @@
 - Other: [Диплом (Degree certificate)](https://drive.google.com/file/d/1M6RcBAsezVeqrr5GyNWu1DeNJ8VmYqOQ/view?usp=sharing)
 
 **Contacts**
-- Mobile 1: +7 910 322 80 27
-- Mobile 2: +7 905 173 79 20
+- Mobile 1: +7 910 322 80 27 (Whatsapp, Telegram)
+- Mobile 2: +7 905 173 79 20 (Whatsapp, Telegram)
 - Mobile 3: +7 905 878 44 38
+- Telegram: https://t.me/denis_skripnichenko
 - Email: darkterranius93@gmail.com
 
 **Hire**
