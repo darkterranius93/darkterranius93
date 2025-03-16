@@ -19,10 +19,10 @@
 
 # **Онлайн-паперть**
 **На виллу**\
-*BTC:* bc1qxd0kk4ux2cwtjm7q3xualnnxzpuutp20hgnmtp
+*BTC:* Soon
 
 **На бентли**\
-*ETH:* 0x997e77ba0654bc4Ff46f1E3C49649Bd06bdA3470
+*ETH:* Soon
 
 **На стейки и шлюх**\
 *XRP:* rPussA3FtEKLLU8rhFYftsBhCmxXoqfij2
