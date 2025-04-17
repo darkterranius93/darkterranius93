@@ -13,10 +13,6 @@
 - Telegram: https://t.me/denis_skripnichenko
 - Email: darkterranius93@gmail.com
 
-**Hire**
-- Freelance: 100$/hr
-- Job: 15000$/month +
-
 # **Онлайн-паперть**
 **На виллу**\
 *BTC:* Soon
